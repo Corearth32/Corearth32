@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Corearth32
+- 👀 I’m interested in talking and making new freands
+- 🌱 I’m currently learning how to speak russian
+- 💞️ I’m not looking to collaborate
+- 📫 How to reach me coreearth32@gmail.com 
+- 😄 Pronouns: he him
+- ⚡ Fun fact: i have a pet goat
